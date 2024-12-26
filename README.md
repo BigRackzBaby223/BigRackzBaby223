@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BigRackzBaby223
-- 👀 I’m interested in ... 0Day ❤ RM my crush💋🤤😘
+- 👀 I’m interested in ... 0Day ❤ RM my crush 💋😘
 - 🌱 I’m currently learning ...linux
-- 💞️ I’m looking to collaborate on ...just learning love good looking tech guy thats well equipped with big network and has expert skills with penetration 😉 send me a message rackzup2020@protonmail.com
+-  I’m looking to collaborate on ...just learning, Advancing my skill to finish my certifications and find a great job hacking predators that violate children i think the world needs more 0Days like Ryan Montgomery.....excited to hopefully see him live at defcon vegas oneday 🤘🏼👀👀🥰
 
    
 <!---
